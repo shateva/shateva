@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @shateva and I like computer science stuff!
+- 👋 Hi, I’m @shateva and I like 	💻 - science stuff!
